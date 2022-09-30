@@ -1,1 +1,0 @@
-# Decis-o-simples
